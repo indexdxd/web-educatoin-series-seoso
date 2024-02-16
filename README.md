@@ -1,1 +1,1 @@
-# web-series-seoso
+# web-education-series-seoso
